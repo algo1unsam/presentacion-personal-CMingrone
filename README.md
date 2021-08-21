@@ -1,4 +1,4 @@
-# presentacion-personal-CMingrone
+Carlos Mingrone
 
 
 ![Imagen text](2476bdd0-c414-4fbe-8902-9f25afa5e48b.jpg)
